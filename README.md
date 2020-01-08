@@ -8,3 +8,6 @@ Having been happily together for more than ten years, we've decided to finally g
 ### Location & Address
 
 ![](/images/lake.jpg)
+
+5500 Gronda Road
+Harrison, Michigan 48625
