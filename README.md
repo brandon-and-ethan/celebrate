@@ -1,6 +1,4 @@
-<head>
-    <link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
-</head>
+<link rel="shortcut icon" type="image/png" href="/favicon.png">
 
 ## Join us on July 3rd, 2020
 
