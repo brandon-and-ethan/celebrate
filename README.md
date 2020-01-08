@@ -13,6 +13,10 @@ Having been happily together for more than ten years, we've decided to finally g
 Harrison, Michigan 48625
 ```
 
-### Transport & Lodging
+### Event Calendar
+
+TODO - show order of events
+
+### Transportation & Lodging
 
 TODO - hotel reservation address
