@@ -20,3 +20,7 @@ TODO - show order of events
 ### Transportation & Lodging
 
 TODO - hotel reservation address
+
+### Contact
+
+TODO - add my contact info
