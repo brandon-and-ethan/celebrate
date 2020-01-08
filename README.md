@@ -17,7 +17,7 @@ Harrison, Michigan 48625
 
 TODO - show order of events
 
-### Transportation & Lodging
+### Lodging & Transportation
 
 TODO - hotel reservation address
 
