@@ -1,4 +1,5 @@
-<link rel="shortcut icon" type="image/png" href="favicon-32x32.png">
+<link rel="shortcut icon" type="image/png" href="/images/favicon-32x32.png">
+<link rel="shortcut icon" sizes="32x32" href="/images/favicon-32x32.png">
 
 ## July 3rd, 2020
 
