@@ -47,4 +47,4 @@ Do not forget to pack a swim suit for the celebration on the 4th as well!
 
 ### Contact
 
-Please feel free to email me at b.mazey@nyu.edu for any questions or concerns!
+Please feel free to email me at <b.mazey@nyu.edu> for any questions or concerns!
