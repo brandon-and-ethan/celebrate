@@ -69,7 +69,7 @@ _Saturday, July 4th:_
 
 ![](/images/nightscape.jpg)
 
-TODO - encourage people to come on the 2nd and stay will the 5th?
+TODO - encourage people to come on the 2nd and stay until the 5th?
 
 ### Clothing & Attire
 
