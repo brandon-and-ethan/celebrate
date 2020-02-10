@@ -20,22 +20,22 @@ While many guests may choose to use services such as AirBnB, we have
 
 ### Event Calendar
 
-Friday, July 3rd:
-Transportation services at 4.00pm, pickup at Riverwalk Hotel
-Wedding ceremony 5.00pm at Farwell
-Post-ceremony transport services to Gronda lake house
-Reception 6.30pm - 8.00pm
-Dinner 8.00pm
-Transport services available to Riverwalk Hotel from 9.00pm to 3.00am
+__Friday, July 3rd:__
+* Transportation services at 4.00pm, pickup at Riverwalk Hotel
+* Wedding ceremony 5.00pm at Farwell
+* Post-ceremony transport services to Gronda lake house
+* Reception 6.30pm - 8.00pm at Gronda lake house
+* Dinner 8.00pm
+* Transport services available to Riverwalk Hotel from 9.00pm to 3.00am
 
-Saturday, July 4th:
-Individual morning events (canoe, golf, spa, etc.)
-July 4th celebration starting at lake house at 3:00pm
-Pig roast, drinks, campfire s’mores, fireworks at dark
+__Saturday, July 4th:__
+* Individual morning events (canoe, golf, spa, etc.)
+* July 4th celebration starting at lake house at 3:00pm
+* Pig roast, drinks, campfire s’mores, fireworks at dark
 
 ### Attire
 
-
+Being that all events on the 3rd and 4th will take place outside, we encourage our guests to dress comfortably. You will need at least one long-sleeved shirt and
 
 ### Contact
 
