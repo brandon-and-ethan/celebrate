@@ -20,7 +20,7 @@ While many guests may choose to use services such as AirBnB, we have
 
 ### Event Calendar
 
-__Friday, July 3rd:__
+_Friday, July 3rd:_
 * Transportation services at 4.00pm, pickup at Riverwalk Hotel
 * Wedding ceremony 5.00pm at Farwell
 * Post-ceremony transport services to Gronda lake house
@@ -28,7 +28,7 @@ __Friday, July 3rd:__
 * Dinner 8.00pm
 * Transport services available to Riverwalk Hotel from 9.00pm to 3.00am
 
-__Saturday, July 4th:__
+_Saturday, July 4th:_
 * Individual morning events (canoe, golf, spa, etc.)
 * July 4th celebration starting at lake house at 3:00pm
 * Pig roast, drinks, campfire s’mores, fireworks at dark
@@ -39,4 +39,4 @@ Being that all events on the 3rd and 4th will take place outside, we encourage o
 
 ### Contact
 
-TODO - add my contact info
+Please feel free to email me at b.mazey@nyu.edu for any questions or concerns!
