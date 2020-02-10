@@ -5,14 +5,24 @@
 
 Having been happily together for more than ten years, we've decided to finally get married! We will be hosting a ceremony on the pristine woodland lakes of Michigan. Please celebrate with us by pausing busy schedules and connecting to nature this summer!
 
-### Location & Address
+### Locations & Addresses
 
-![](/images/lake.jpg)
+The July 3rd ceremony will take place here:
 ```
-Lake House
+Farwell Hunting Grounds
+7189 South Old State Avenue
+Farwell, Michigan 48622
+```
+
+FIXME - photo needed!
+
+The July 3rd reception & July 4th celebration will take place here:
+```
+Arnold Lake House
 5500 Gronda Road
 Harrison, Michigan 48625
 ```
+![](/images/lake.jpg)
 
 ### Lodging & Transportation
 
