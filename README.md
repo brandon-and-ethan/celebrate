@@ -35,7 +35,11 @@ _Saturday, July 4th:_
 
 ### Attire
 
-Being that all events on the 3rd and 4th will take place outside, we encourage our guests to dress comfortably. You will need at least one long-sleeved shirt and
+Being that all events on the 3rd and 4th will take place outside, we encourage our guests to dress comfortably & casually.
+You will need at least one long-sleeved shirt and a pair of jeans (or other full-length pants) for the ceremony on the 3rd.
+This is due to the insects on Farwell which will FEAST ON YOUR SUPPLE FLESH given the opportunity.
+Repellent and sun screen will be provided, but we encourage you to pack products of your choice as well.
+Do not forget to pack a swim suit for the celebration on the 4th as well!
 
 ### Contact
 
