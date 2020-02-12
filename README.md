@@ -77,6 +77,8 @@ We encourage our guests to remain somewhat skeptical of AirBnB offerings in the 
 
 ### Transportation
 
+We suggest you plan to arrive in Michigan on Thursday, July 2nd and depart on Sunday, July 5th.
+
 Flights to DTW (Detroit), TVC (Traverse City), or MBS (Bay City) are generally inexpensive. LGA to DTW is $150.00 round trip with Spirit Airlines!
 For the best experience we recommend traveling Delta to MBS or DTW, though TVC is also relatively close.
 
