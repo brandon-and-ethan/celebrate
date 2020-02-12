@@ -100,6 +100,8 @@ This is due to insects on Farwell which will feast on your supple flesh given th
 Repellent and sun screen will be provided, but we encourage you to pack products of your choice as well.
 Do not forget to ***pack a swim suit*** for the celebration on the 4th as well!
 
+If you are interested in wearing ceremonial colors we have decided to use khaki, white, and sage.
+
 NO HEELS!
 
 ![](/images/lakefront.jpg)
@@ -107,11 +109,6 @@ NO HEELS!
 ### Gifts & Registry
 
 Your presence is a gift; we do not have a wedding registry.
-
-If you insist on giving us a gift, we encourage you to donate to one of the following charitable organizations which we
-have picked to represent our passions and interests:
-
-TODO - add links!
 
 ### Contact Information
 
