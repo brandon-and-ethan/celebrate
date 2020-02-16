@@ -105,7 +105,7 @@ If you are interested in wearing ceremonial colors we have decided to use khaki,
 
 ### Gifts & Registry
 
-Your presence is a gift; we do not have a wedding registry.
+Your presence is our gift; we do not have a wedding registry.
 
 ### Contact Information
 
