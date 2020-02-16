@@ -109,6 +109,6 @@ Your presence is our gift; we do not have a wedding registry.
 
 ### Contact Information
 
-Feel free to email me at <b.mazey@nyu.edu> with any questions or concerns!
-As travel reservations materialize, I will be helping our guests organize ground transport.
-Please send me an email if you are interested in carpooling or booking an AirBnB with friends. :)
+Feel free to email us at <b.mazey@nyu.edu> with any questions or concerns!
+As travel reservations materialize, we will be helping our guests organize ground transportation.
+Please send us an email if you are interested in carpooling or booking accommodations with friends. :)
