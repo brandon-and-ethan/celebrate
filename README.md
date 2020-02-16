@@ -91,16 +91,15 @@ We will help organize carpools if needed using my contact information found in t
 
 ### Clothing & Attire
 
-Being that all events on the 3rd and 4th will take place outside, we encourage our guests to dress comfortably & casually.
-You will need ***at least one long-sleeved shirt and a pair of jeans*** (or other full-length pants) for the ceremony on the 3rd.
-This is due to insects on Farwell which will feast on your supple flesh given the opportunity.
+Being that all events on the 3rd and 4th will take place outside, we recommend our guests dress comfortably & casually.
+You will need ***at least one long-sleeved shirt and full-length pants*** for the ceremony on the 3rd.
+Do not wear heels!
 
 Repellent and sun screen will be provided, but we encourage you to pack products of your choice as well.
-Do not forget to ***pack a swim suit*** for the celebration on the 4th as well!
+We encourage you to ***pack swimwear and pair of shorts*** for the celebration on the 4th!
+It gets chilly at night, you may want to bring a long-sleeved shirt or sweater for the firework events.
 
 If you are interested in wearing ceremonial colors we have decided to use khaki, white, and sage.
-
-NO HEELS!
 
 ![](/images/lakefront.jpg)
 
