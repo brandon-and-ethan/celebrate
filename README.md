@@ -7,7 +7,7 @@ Having been happily together for more than ten years, we've decided to finally g
 
 ### Locations & Addresses
 
-The July 3rd ceremony will take place here:
+The July 3rd ceremony will take place in Farwell:
 
 ```
 Farwell Hunting Grounds
@@ -17,7 +17,7 @@ Farwell, Michigan 48622
 
 ![](/images/farwell.jpg)
 
-The July 3rd reception & July 4th celebration will take place here:
+The July 3rd reception & July 4th celebration will take place in Harrison:
 
 ```
 Arnold Lake House
