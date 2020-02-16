@@ -1,13 +1,13 @@
 <link rel="shortcut icon" type="image/png" href="/celebrate/images/favicon-32x32.png">
 <link rel="shortcut icon" sizes="32x32" href="/celebrate/images/favicon-32x32.png">
 
-## July 3rd, 2020
+# July 3rd, 2020
 
 It's finally happening! Having been happily together for more than ten years, we've decided to finally get married!
 We will be hosting a ceremony on the pristine woodland lakes of Michigan.
 Please celebrate with us by pausing busy schedules and connecting to nature this summer.
 
-### Locations & Addresses
+## Locations & Addresses
 
 The July 3rd ceremony will take place in Farwell:
 
@@ -29,7 +29,7 @@ Harrison, Michigan 48625
 
 ![](/images/lake.jpg)
 
-### Event Calendar
+## Event Calendar
 
 _Friday, July 3rd:_
 * Transportation services at 4.00pm, pickup at Riverwalk Place in Gladwin
@@ -46,7 +46,7 @@ _Saturday, July 4th:_
 
 ![](/images/nightscape.jpg)
 
-### Lodging
+## Lodging
 
 We are aware of how expensive destination weddings can be, and we've made signifcant efforts to keep the weekend as inexpensive as possible.
 While many guests may choose to use services such as AirBnB, we have reserved several rooms at the Riverwalk in the event of low supply or quality.
@@ -72,7 +72,7 @@ If you would like to book the Rivertown Inn, please call the lodging manager at 
 
 We encourage our guests to remain skeptical of AirBnB offerings in this remote area.
 
-### Transportation
+## Transportation
 
 We suggest you plan to arrive in Michigan on Thursday, July 2nd and depart on Sunday, July 5th.
 
@@ -91,7 +91,7 @@ We will help organize carpools if needed using my contact information found in t
 * Traverse City (TVC) + car rental = 2 hour drive maximum
 * Bay City (MBS) + car rental = 1 hour drive maximum (best option)
 
-### Clothing & Attire
+## Clothing & Attire
 
 Being that all events on the 3rd and 4th will take place outside, we recommend our guests dress comfortably & casually.
 You will need ***at least one long-sleeved shirt and full-length pants*** for the ceremony on the 3rd.
@@ -105,11 +105,11 @@ If you are interested in wearing ceremonial colors we have decided to use khaki,
 
 ![](/images/lakefront.jpg)
 
-### Gifts & Registry
+## Gifts & Registry
 
 Your presence is our gift; we do not have a wedding registry.
 
-### Contact Information
+## Contact Information
 
 Feel free to email us at <b.mazey@nyu.edu> with any questions or concerns!
 As travel reservations materialize, we will be helping our guests organize ground transportation.
