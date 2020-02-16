@@ -30,25 +30,23 @@ Harrison, Michigan 48625
 ### Event Calendar
 
 _Friday, July 3rd:_
-* Transportation services at 4.00pm, pickup at Riverwalk Place
-* Wedding ceremony 5.00pm at Farwell
-* Post-ceremony transport services to Arnold Lake House
+* Transportation services at 4.00pm, pickup at Riverwalk Place in Gladwin
+* Wedding ceremony 5.00pm in Farwell
+* Post-ceremony transport services to Arnold Lake House in Harrison
 * Reception 6.30pm - 8.00pm at Arnold Lake House
 * Dinner 8.00pm (family style - vegetarian / gluten-free options available)
-* Transport services available to Riverwalk Place from 9.00pm to 3.00am
+* Transport services available from reception to Riverwalk Place from 9.00pm to 3.00am
 
 _Saturday, July 4th:_
 * Individual morning events, guests are welcome to return to lake house (canoe, fishing, spa, etc.)
 * July 4th celebration starting at lake house at 3:00pm
-* Pig roast, drinks, campfire s’mores, fireworks at dark
+* Pig roast, drinks, campfire s’mores, fireworks at dark!
 
 ![](/images/nightscape.jpg)
 
-TODO - encourage people to come on the 2nd and stay until the 5th?
-
 ### Lodging
 
-We are aware of how expensive destination weddings can be, and we've made a signifcant effort to keep the weekend as inexpensive as possible for our guests.
+We are aware of how expensive destination weddings can be, and we've made signifcant efforts to keep the weekend as inexpensive as possible.
 While many guests may choose to use services such as AirBnB, we have reserved several rooms at the Riverwalk in the event of low supply or quality.
 
 ```
@@ -57,9 +55,8 @@ Riverwalk Place Resort
 Gladwin, Michigan 48624
 ```
 
-The total cost per person at Riverwalk Place for two days is $306.34 after tax. This includes a spa package, but does not include gratuities.
-You may also choose to arrive earlier on July 2nd.
-If you would like to book Riverwalk Place, please call the lodging manager at 989-246-8000 and use the name Mazey.
+The total cost per person at Riverwalk Place for three nights is approximately $400. This includes a spa package, but does not include gratuities.
+If you would like to book Riverwalk Place, please call the lodging manager at 989-246-8000. Rooms are reserved under the name Mazey.
 We also have reserved rooms at a sister hotel, the Rivertown Inn.
 
 ```
@@ -68,12 +65,10 @@ Rivertown Inn
 Gladwin, Michigan 48624
 ```
 
-This option does not include any spa services and is therefore somewhat less expensive.
+This option does not include spa services, all rooms are double-occupancy, and is significantly less expensive.
 If you would like to book the Rivertown Inn, please call the lodging manager at 989-246-9130 and use the name Mazey.
 
-The Doherty Hotel in Clare, Michigan is another lodging option, but you should know that the grounds are haunted.
-Clare is a charming town with wonderful people; however, the local hotel is a bubbling crockpot of hateful spirits.
-We encourage our guests to remain somewhat skeptical of AirBnB offerings in the area.
+We encourage our guests to remain skeptical of AirBnB offerings in this remote area.
 
 ### Transportation
 
