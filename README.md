@@ -74,11 +74,12 @@ We encourage our guests to remain skeptical of AirBnB offerings in this remote a
 
 We suggest you plan to arrive in Michigan on Thursday, July 2nd and depart on Sunday, July 5th.
 
-Flights to DTW (Detroit), TVC (Traverse City), or MBS (Bay City) are generally inexpensive. LGA to DTW is $150.00 round trip with Spirit Airlines!
-For the best experience we recommend traveling Delta to MBS or DTW, though TVC is also relatively close.
+Flights to DTW (Detroit), TVC (Traverse City), or MBS (Bay City) are generally inexpensive. LGA to DTW is $150 round trip with Spirit Airlines!
+For the best experience we recommend traveling Delta to MBS or DTW. TVC is also an option if you wish to extend your stay.
 
-***Services such as Uber and Lyft are unreliable in this area! You will most likely need to rent a car to get around over the weekend!***
-As described in the event calendar below, we will have transportation organized to and from the Riverwalk for certain events;
+***Services such as Uber and Lyft are unreliable in this area! You will need to rent a car to get around over the weekend!***
+
+As described in the event calendar, we will have transportation organized to and from the Riverwalk for the wedding day;
 however, you will at the very least need to get from the airport to the lodging of your choice.
 We will help organize carpools if needed using my contact information found in the last section!
 
