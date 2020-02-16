@@ -87,7 +87,7 @@ We will help organize carpools if needed using my contact information found in t
 
 * Detroit (DTW) + car rental = 3 hour drive maximum
 * Traverse City (TVC) + car rental = 2 hour drive maximum
-* Bay City (MBS) + car rental = 1 hour drive maximum
+* Bay City (MBS) + car rental = 1 hour drive maximum (best option)
 
 ### Clothing & Attire
 
