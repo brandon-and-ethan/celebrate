@@ -99,7 +99,7 @@ Do not wear heels!
 
 Repellent and sun screen will be provided, but we encourage you to pack products of your choice as well.
 We encourage you to ***pack swimwear and pair of shorts*** for the celebration on the 4th!
-It gets chilly at night, you may want to bring a long-sleeved shirt or sweater for the firework events.
+It gets chilly at night, you may want to bring a long-sleeved shirt / sweater, and pants for the firework events.
 
 If you are interested in wearing ceremonial colors we have decided to use khaki, white, and sage.
 
