@@ -114,3 +114,5 @@ Your presence is our gift; we do not have a wedding registry.
 Feel free to email us at <b.mazey@nyu.edu> with any questions or concerns!
 As travel reservations materialize, we will be helping our guests organize ground transportation.
 Please send us an email if you are interested in carpooling or booking accommodations with friends. :)
+
+![](/images/vineyard.jpg)
