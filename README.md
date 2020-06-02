@@ -1,6 +1,13 @@
 <link rel="shortcut icon" type="image/png" href="/celebrate/images/favicon-32x32.png">
 <link rel="shortcut icon" sizes="32x32" href="/celebrate/images/favicon-32x32.png">
 
+# Announcement
+
+2020 has already been quite a year! Given health concerns around travel and the coronavirus, we have made the decision to postpone the ceremony until 2021.
+We hope to see you all in Michigan on July 3rd, 2021!
+
+Stay safe and healthy!
+
 # July 3rd, 2020
 
 It's finally happening! Having been happily together for more than ten years, we've decided to finally get married!
